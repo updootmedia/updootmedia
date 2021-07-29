@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @updootmedia
+- 💞️ Let's collaborate!
+- 📫 How to reach me ... career@updoot.media
